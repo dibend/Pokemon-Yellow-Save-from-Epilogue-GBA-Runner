@@ -38,6 +38,7 @@ May have been played on Gameboy original by original owner I think I played on G
 (May need to Rename File to Make Work on some Computers) .sav file name might get cut off by trash OS.)
 
 Best Save Ever for beating Elite 4.
+<hr>
 <img src="https://github.com/dibend/Pokemon-Yellow-Save-from-Epilogue-GB-Runner/blob/main/pokemon%20electro%20ball%20GIF.gif?raw=true">
 
 
