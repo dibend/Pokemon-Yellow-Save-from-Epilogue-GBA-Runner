@@ -1,4 +1,4 @@
-# Pokemon-Yellow-Save-from-Epilogue-GB-Runner
+# Pokemon-Yellow-Save-from-Epilogue-GBA-Runner
 Mewtwo, Dragonite, Ditto, Articuno, Zapdos & Rhydon in Party, traded with Gold all Legit No Level 100s traded them all to complete back of PokeDex. Pikachu Released for fun.
 
 Used Mew Glitch (Easter Egg) (Taught Mew Egg Bomb) (Dev Snuck In Game cause it was in Movie) (Don't catch Missingo it messes up Game). (Pokedex goes up to 151) (Mew in Computer).
